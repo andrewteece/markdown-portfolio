@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Photography
+2. Traveling
+3. Golf
